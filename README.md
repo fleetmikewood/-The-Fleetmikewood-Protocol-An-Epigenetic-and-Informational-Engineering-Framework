@@ -1,0 +1,2 @@
+# -The-Fleetmikewood-Protocol-An-Epigenetic-and-Informational-Engineering-Framework
+The Fleetmikewood Protocol is an informational and biophysical framework created by fleetmikewood (Michael Ray Fleetwood) for real-time epigenetic regulation and phenotypic optimization. It operates entirely through transcriptional regulation, biological feedback loops, and AI-driven cognitive/somatic scripts (informational engineering) 
